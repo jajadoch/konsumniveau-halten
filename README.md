@@ -6,7 +6,7 @@ Viele von uns beziehen auch im Corona-Lockdown ein regelmäßiges Einkommen. Gle
 
 
 
-#### So funktionierts:
+### So funktionierts:
 
 <details>
            <summary>✏️ <b>Projekte ergänzen</b></summary>
