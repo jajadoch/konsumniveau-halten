@@ -2,7 +2,7 @@
 
 # Gute Projekte finanziell supporten
 
-Viele von uns beziehen auch im Corona-Lockdown ein regelmäßiges Einkommen. Gleichzeitig brechen unzähligen unserer Lieblingsbars, Bühnen, Clubs und Festivals die Einnahmen weg. Diesen Projekten helfen gerade direkte Geldspenden. Um den finanziellen Support so einfach wie möglich zu gestalten, listet dieses erweiterbare Dokument Links zu den Spendenaufrufen unterstützenswerter Projekte auf. 
+Viele von uns beziehen auch im Corona-Lockdown ein regelmäßiges Einkommen. Gleichzeitig brechen unzähligen unserer Lieblingsbars, Bühnen, Clubs und Festivals die Einnahmen weg. Diesen Projekten helfen gerade direkte Geldspenden. Um den finanziellen Support so einfach wie möglich zu gestalten, sind in diesem erweiterbaren Dokument die Spendenaufrufen unterstützenswerter Projekte verlinkt. 
 
 
 
