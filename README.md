@@ -62,7 +62,7 @@ Nicht sicher, was eine angemessene Spendensumme ist? Als Richtwert könnten 7 bi
 - Mahlzeiten für Wohnungslose kaufen: [Speisekombinat #SoliKüche](https://www.speisekombinat.com/?fbclid=IwAR16CoLZ2Lsfi_2r8GjgJqPxpwluEmfWuQSwufyRAVkRnxkEnicMy9asVe0eine) (B)
 - Brandenburger Lieblingsorte unterstüzen: [BrandenburgHelfen](https://www.brandenburghelfen.de/)
 - Lokale Gastronomie unterstützen: [Pay now, eat later](https://www.paynoweatlater.de/in/berlin/?fbclid=IwAR3cQTPEgdlzhtIN0bVpH7C_d2dX24HH4v45hutMyti1VqrhmaofZ1WtvkI#partner) (B)
-- [Rote Schwestern Göttingen](https://www.alte-schwestern-goettingen.de/17)
+- [Alte Schwestern Netzwerk](https://www.alte-schwestern-goettingen.de/17) (Göttingen)
 
 
 <p align="center">💜💜💜</p>
