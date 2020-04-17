@@ -26,13 +26,14 @@ Nicht sicher, was eine angemessene Spendensumme ist? Als Richtwert könnten 7 bi
    
 
 
-### Clubkultur
+### Clubs
 - [Südpol](https://www.startnext.com/suedpol-hamburg?fbclid=IwAR0oL5qlJLCt7c4wJg2mvXIZ_-gWtOkQppEoiB204dhBoTqQkpq9EZKG1Ro)(HH)
 - [Übel & Sternbrücken-Clubs](https://www.startnext.com/savetheravehh) (HH)
 - [S.O.S. Save Our Sounds – Spendenkampagne zur Rettung von Hamburgs Clubszene](https://www.betterplace.org/de/projects/77987-s-o-s-save-our-sounds-clubrettunghh) (HH)
 - [Save Berlin's Club Culture in Quarantine](https://www.betterplace.org/de/projects/77946-save-berlin-s-club-culture-in-quarantine) (B)
 - [Berlin Collective Action: Nightlife Emergency Fund](https://www.betterplace.me/berlin-collective-action-nightlife-emergency-fund16) (B)
 - [Jonny Knüppel](https://www.startnext.com/jonny-knueppel) (B)
+- [Golden Gate](https://startnext.com/goldengateberlin) (B)
 - [Club Soliticket für Leipziger Clubszene](https://livekommbinat.de/) (L)
 - [Mensch Meier](https://menschmeier.berlin/verein) (B)
 - [Institut für Zukunft – IfZ](https://www.startnext.com/a-future-sound-is-possible?fbclid=IwAR1JmphTJwRNIsOyRx7DbkGA1cjuPKAxyjzL-WBPJ416a2_B2ksFZcpLyAg) (LE)
@@ -57,12 +58,13 @@ Nicht sicher, was eine angemessene Spendensumme ist? Als Richtwert könnten 7 bi
 - [Kiez Café Madame](https://app.atento.me/merchants/188'?fbclid=IwAR1VC2ldRod2DjdEUWU8M9w-tzuWC7FM6zLccXM7aUT6djB1BmWvToGVDFc) (B)
 
 
+
 ### Überregionales & Sonstiges
 - [Rette deine Lieblingsorte](https://helfen-shop.berlin/) (B)
 - Mahlzeiten für Wohnungslose kaufen: [Speisekombinat #SoliKüche](https://www.speisekombinat.com/?fbclid=IwAR16CoLZ2Lsfi_2r8GjgJqPxpwluEmfWuQSwufyRAVkRnxkEnicMy9asVe0eine) (B)
 - Brandenburger Lieblingsorte unterstüzen: [BrandenburgHelfen](https://www.brandenburghelfen.de/)
 - Lokale Gastronomie unterstützen: [Pay now, eat later](https://www.paynoweatlater.de/in/berlin/?fbclid=IwAR3cQTPEgdlzhtIN0bVpH7C_d2dX24HH4v45hutMyti1VqrhmaofZ1WtvkI#partner) (B)
 - [Alte Schwestern Netzwerk](https://www.alte-schwestern-goettingen.de/17) (Göttingen)
-
+- [Gemeinsamer Spendenaufruf linker Zentren](https://www.viertelzimmer.net/news/gemeinsamer-spendenaufruf-linker-zentren/) (HH)
 
 <p align="center">💜💜💜</p>
