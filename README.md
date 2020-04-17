@@ -66,6 +66,7 @@ Nicht sicher, was eine angemessene Spendensumme ist? Als Richtwert könnten 7 bi
 - Lokale Gastronomie unterstützen: [Pay now, eat later](https://www.paynoweatlater.de/in/berlin/?fbclid=IwAR3cQTPEgdlzhtIN0bVpH7C_d2dX24HH4v45hutMyti1VqrhmaofZ1WtvkI#partner) (B)
 - [Alte Schwestern Netzwerk](https://www.alte-schwestern-goettingen.de/17) (Göttingen)
 - [Gemeinsamer Spendenaufruf linker Zentren](https://www.viertelzimmer.net/news/gemeinsamer-spendenaufruf-linker-zentren/) (HH)
-- Stiftungsfond Zivile Seenotrettung: [#LeaveNoOneBehind](https://leavenoonebehind2020.org/donate/) 
+- Stiftungsfond Zivile Seenotrettung: [#LeaveNoOneBehind](https://leavenoonebehind2020.org/donate/)
+- [Hinz&Kunzt](https://www.hinzundkunzt.de/corona-fonds/) (Hamburger Straßenmagazin)
 
 <p align="center">💜💜💜</p>
