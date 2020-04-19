@@ -42,7 +42,8 @@ Nicht sicher, was eine angemessene Spendensumme ist? Als Richtwert könnten 7 bi
 
 ### Bars
 - [Erna P](https://www.facebook.com/ErnasBar/posts/2615222111938130) (B) 
-- [Klunkerkranich](https://www.betterplace.org/de/projects/78004-quarantane-auf-dem-dach-klunkerkranich?fbclid=IwAR06iba0cQ7jfdITpYIrzZOXPC7Jr3oceROejV6uzzjFysKIpztIRhTYj8U) (B) 
+- [Klunkerkranich](https://www.betterplace.org/de/projects/78004-quarantane-auf-dem-dach-klunkerkranich?fbclid=IwAR06iba0cQ7jfdITpYIrzZOXPC7Jr3oceROejV6uzzjFysKIpztIRhTYj8U) (B)
+- [Chez Maliks](https://www.gofundme.com/f/rettungsanker-fur-chez-maliks-bar?utm_source=customer&utm_medium=copy_link-tip&utm_campaign=p_cp+share-sheet) (HH)
  
 ### Festivals
 - [Pyonen](https://www.startnext.com/pyonen)
